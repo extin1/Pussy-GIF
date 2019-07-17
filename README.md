@@ -1,5 +1,7 @@
 Some things to fuck off:
 
-Discord Nitro
+1 - Discord Nitro
 
-ISP's from Germany
+2 - ISP's from Germany
+
+Have a nice day! :D
